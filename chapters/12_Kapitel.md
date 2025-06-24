@@ -573,7 +573,6 @@ Stuart und die Kameraden seines Stabes bereits vor längerer Zeit eingetroffen
 waren.^[^1203]^
 
 
-
 [^1201]: [Ein sehr beherzigenswerthes Beispiel dafür, wie die Reiterei das Gefecht zu Fuß und zu Pferde mit Erfolg kombiniren muß. Vergl. die §§ 236 und 237 des Exerzir-Reglements für die Kavallerie vom 5. Juli 1876. *Anm. d. Uebers.*]{.footnote}
 
 [^1202]: [Der Persimonpflaumenbaum wächst in Virginia in großer Menge, und seine Frucht erinnert an die europäische Mispel oder die asiatische Dattel. In unreifem Zustande ist die Persimone sauer und herbe, wird jedoch durch jeden Frost milder und schmeckt im Winter süß und angenehm. Man braut sehr gutes Bier daraus und ihre Kerne wurden von uns öfters zur Bereitung eines jämmerlichen Ersatzes für den Kaffee benutzt. Die Nordcarolina-Truppen wurden vielfach von ihren Kameraden aus dem anderen Staaten wegen ihrer Vorliebe für diese Frucht gehänselt, eines Geschmackes, den sie mit den Negern und einem der merkwürdigsten Thiere, dem virginischen Opossum, theilen, das stets am feistesten ist, wenn die Zeit der Persimone ihren Höhepunkt erreicht hat.]{.footnote}
