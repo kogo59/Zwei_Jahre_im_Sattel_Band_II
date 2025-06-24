@@ -7,7 +7,7 @@ abgeschnitten durch den Feind. — Gefecht bei Barbers Kreuzweg. — Rückzug na
 Orleans und Uebergang über den Kappahaunock. — Gefechte bei der Waterloo-Brücke
 und Jefferson. — Uebergang über den Hazel-Fluß. — Biwak im Schnee. — Eine
 Erkundung mit General Stuart. — Hauptquartier bei Culpepper-Gerichtshaus.
-Gewaltsame Rekognoszirung und Gefecht bei Amißville. **<br /><br />
+—  Gewaltsame Rekognoszirung und Gefecht bei Amißville.**<br /><br />
 
 
 Der 4. November. — Der tiefe Schlaf, welcher den Anstrengungen des verflossenen
@@ -22,7 +22,6 @@ Reiter wurde währenddessen dem Obersten Rosser übertragen, mit der Weisung,
 seine Stellung so lange als möglich zu behaupten und den General Stuart durch
 häufige Meldungen über den Verlauf des voraussichtlichen Gefechts in Kenntniß zu
 halten.
-
 
 Ein kalter Wind blies uns in das Gesicht, als wir in der Richtung auf den
 Shenandoah durch den Flecken Paris trabten, und es fror scharf, als wir gegen
@@ -48,8 +47,9 @@ sein herzlichstes Bedauern über unsere augenscheinlich wenig behagliche Lage au
 und that sein Bestes zu unserer Erholung, indem er Befehl ertheilte, sofort das
 Frühstück zu bereiten. Nichts war besser geeignet. unsere gute Laune wieder
 herzustellen, als der Ruf zu des Generals großem Frühstückstische, auf dem
-riesige Kaffeekannen in dichten Dampfwolken den aromatischen Duft ihres 
-würzigen Inhaltes verbreiteten und eine herrliche Wildkeule prangte, das Geschenk eines benachbarten Pflanzers.
+riesige Kaffeekannen in dichten Dampfwolken den aromatischen Duft ihres würzigen
+Inhaltes verbreiteten und eine herrliche Wildkeule prangte, das Geschenk eines
+benachbarten Pflanzers.
 
 Die gute Bewirthung übte den günstigsten Einfluß auf Stuart, der unser Mahl
 durch eine Menge von Anekdoten würzte und manchen Scherz auf Kosten seiner
@@ -237,16 +237,347 @@ Anwesenheit Allen einflößte.
 
 General Hampton erhielt Befehl, den rechten Flügel der Schlachtlinie zu
 übernehmen, und ich begleitete ihn auf einem kleinen Erkundungsritte nach einem
-sanften Hügel, von dem wir 
+sanften Hügel, von dem wir in nächster Nähe den Anmarsch der sehr zahlreichen
+feindlichen Heeresabtheilungen beobachten konnten. Bei seiner Batterie befanden
+sich zwei fünfzehnpfündige Bronzegeschütze, welche er selber auf seine Kosten
+von Europa herübergebracht hatte, und die sich durch ihre Schußweite und die
+Genauigkeit der Zieleinrichtungen auszeichneten, für die fliegende Artillerie
+jedoch zu schwer waren. Diese Geschütze wurden auf unserem Beobachtungsposten in
+Stellung gebracht und eröffneten alsbald das Gefecht, während ihr Feuer von den
+Yankees nachdrücklichst erwidert wurde, woraus sich eine fürchterliche Kanonade
+entspann. Binnen Kurzem stieß Stuart mit den sämmtlichen übrigen Gliedern seines
+Stabes zu uns; diese Reitergruppe lenkte bald die Aufmerksamkeit der feindlichen
+Artilleristen auf sich, und sie beehrten uns mit mehreren Kanonenkugeln, die,
+hoch über unseren Köpfen dahinfliegend, wenig beachtet wurden. Plötzlich aber
+flog eine Perkussionsgranate dicht an uns vorüber und sandte, in einen kleinen
+Akazienbaum einschlagend, der kaum zwanzig Yards von uns entfernt stand, ihren
+eisernen Hagel mitten in unseren Kreis. Wir blickten besorgt einander an, weil
+Jeder es für kaum möglich hielt, daß Niemand von uns getroffen sein sollte. In
+staunenswerthester Weise waren wir sämmtlich unverletzt. Nur mein Pferd war
+verwundet worden, einer der Granatsplitter hatte ihm eine tiefe klaffende Wunde
+in das rechte Hinterbein gerissen. Da ich fand, daß weder Sehnen noch Knochen
+verletzt waren, schloß ich die Wunde, indem ich mein Taschentuch um das Bein
+band, und war so im Stande, das brave Thier trotz seiner Lahmheit den ganzen Tag
+über zu reiten.
+
+Das Gefecht wurde immer lebhafter, und unsere Scharfschützen schlugen mit großem
+Erfolge und empfindlichen Verlusten wiederholte Angriffe der föderirten Reiterei
+ab. Namentlich eine Schwadron der Yankees ward tüchtig bestraft für die
+Kühnheit, mit der sie einen Angriff auf der Chaussee ausführte gegen eine von
+uns in der Eile errichtete Barrikade. In der Front von einem verheerenden Feuer
+empfangen, wurde sie in demselben Augenblicke von einer Abtheilung unserer
+Reiter im Rücken angegriffen, welche die meisten von diesen kühnen Dragonern
+niederhieb oder zu Gefangenen machte.^[^1201]^ Da der Feind fortwährend Verstärkungen
+erhielt, gab General Stuart gegen Mittag Befehl zum Rückzuge auf Orleans, der
+unter dem heftigsten Feuer der feindlichen Batterien angetreten wurde. Hierbei
+trug sich ein eigenthümlicher Vorfall zu. Einer der Reiter unserer
+zurückgehenden Kolonne wurde von einer Kugel durch den Kopf so augenblicklich
+getödtet, daß seine schnell erstarrten Gliedmaßen ihn noch geraume Zeit im
+Sattel erhielten, er todt — mausetodt — mehrere Minuten lang auf seinem Pferde
+aufrecht sitzen blieb, bevor seine Kameraden zur Rechten und Linken gewahr
+wurden, daß er getödtet sei. Der Feind drängte so dicht auf, daß wir wiederholt
+genöthigt waren, Kehrt zu machen und auf ihn einzuhauen. Endlich jedoch machte
+er Halt, und so konnten wir bei Orleans die Pferde füttern und den Leuten eine
+Stunde Ruhe gönnen. General Stuart und sein Stab wurden eingeladen, das
+Mittagbrot in einem stattlichen alten Landhause einzunehmen, das, eine halbe
+Meile von der Stadt entfernt, einer verehrungswürdigen alten Dame, der Frau M.,
+gehörte, deren angeborene Würde und Herzensgüte uns Allen die höchste Achtung
+und Dankbarkeit abgewann. Am folgenden Tage wurde das Haus von den Yankees
+besetzt, und eine Abtheilung der New-Yorker Zuaven behandelte seine Bewohner mit
+dem größten Barbarismus. Nachdem der größte Theil des Hausrathes von ihnen aus
+reiner Zerstörungswuth in Stücke zerschlagen oder gänzlich vernichtet war,
+fragte eine dieser Bestien die alte Dame, wo sie ihr Silber verborgen habe, und
+als sie ihm erwiderte, das sei vor langer Zeit an einen sicheren Ort gebracht,
+schlug er sie mit dem Kolben seines Gewehrs, so daß sie besinnungslos in die
+Arme ihrer Töchter sank.
+
+Den Nachmittag über setzten wir unseren Marsch nach der Waterloo-Brücke fort,
+die wir mit Einbruch der Nacht überschritten und in deren Nähe wir Biwaks
+bezogen. Der General und sein Stab ritten noch eine Meile weiter und nahmen ihr
+Hauptquartier in dem Hause eines Herrn M., wo wir endlich Gelegenheit fanden,
+die Truthühner, deren ich früher gedachte, bereiten zu lassen und zu speisen.
+Das Haus des Herrn M. wurde wenige Tage darauf von den Yankees niedergebrannt,
+weil er uns Gastfreundschaft erwiesen hatte.
+
+Während der Nacht ging ein Telegramm für General Stuart ein, das ich seiner
+stets von mir beobachteten Anweisung gemäß mit den anderen Depeschen öffnete und
+darin eine überaus schmerzliche Nachricht fand. Es zeigte den Tod der kleinen
+Flora an, unseres Chefs lieblicher und zärtlichst geliebter Tochter, fünf Jahre
+alt, der Liebling ihres Vaters und seiner ganzen militärischen Familie. Dies
+süße Kind war bereits längere Zeit gefährlich krank gewesen, und wiederholt
+hatte Frau Stuart ihren Gemahl an Floras Krankenbett gerufen; aber sie erhielt
+stets die Antwort eines echten Soldaten: „Meine Pflicht gegen das Vaterland muß
+erfüllt sein, bevor ich den Gefühlen des Vaters nachgeben darf.“ Ich ging
+sofort, um meinen General mit der erschütternden Nachricht bekannt zu machen.
+Als ich ihn erweckt hatte, erkannte er sofort an dem ernsten Ausdrucke meiner
+Züge, daß etwas nicht in der Ordnung sei, und fragte: „Was giebt es, Major?
+Gehen die Yankees vor?“ Ich gab ihm das Telegramm ohne ein Wort. Er las es, und
+die Zärtlichkeit des Vaterherzens überwältigte die Festigkeit des Kriegers, er
+schlang seine Arme um meinen Nacken und weinte bittere Thränen an meiner Brust.
+Mein theurer General verschmerzte diesen harten Schlag nie. Wie manchmal sprach
+er in der späteren Zeit auf unseren gemeinsamen Ritten von seinem verstorbenen
+Kinde. Lichtblaue Blumen erinnerten ihn an ihre Augen; in den glänzenden
+Sonnenstrahlen fand er die goldige Farbe ihres Haares wieder, und wo immer er
+ein Kind sah mit solchen Augen und solchem Haar, konnte er nicht umhin, es
+zärtlich zu umarmen. Selbst auf seinem Sterbelager gedachte er ihrer; mich dicht
+an sich ziehend, sagte er zu mir: „Mein theurer Freund, bald werde ich wieder
+bei meiner kleinen Flora sein.“
+
+Der 6. und 7. November. — Der Morgen des folgenden Tages verlief, zu unserer
+größten Ueberraschung, vollkommen ruhig, und wir fanden somit Gelegenheit,
+unsere alte Vertheidigungslinie an der Waterloo-Brücke zu besetzen sowie Späher
+und Patrouillen in der Richtung auf den Feind auszusenden. Eine der letzteren
+war so glücklich, einen Wagen der Yankees abzufangen und einzubringen, der uns
+mit einem guten Vorrathe von Havanna-Cigarren versah und unter anderen
+Gegenständen auch eine große Anzahl schöner Bowiemesser enthielt. Längere Zeit
+nachher noch trug Jeder von uns ein solches Messer am Degenkoppel und fand es
+sehr nützlich, weniger als Waffe gegen die Yankees, als um das zähe Rindfleisch
+zu bewältigen, das während der folgenden Monate den Hauptbestandtheil unserer
+Rationen ausmachte. Das Bowiemesser spielt in den früheren Kriegsannalen eine
+hervorragende Rolle; sie erzählen uns oft, daß die Leute von Louisiana,
+Mississippi und Texas im heißesten Kampfe ihre Gewehre von sich geworfen und
+sich mit ihrer Lieblingswaffe auf den Feind gestürzt hätten. Ich habe jedoch
+alle diese Geschichten stets als in das Reich der Fabeln gehörig angesehen,
+ebenso wie die von Bajonettkämpfen, von denen ich bereits früher sprach; sicher
+ist, daß ich für meine Person ein Bowiemesser nie zu anderen als höchst
+friedlichen und unschuldigen Zwecken im Gebrauche gesehen habe.
+
+Um Mittag gingen wir mit einer Schwadron zur Erkundung über den Fluß vor und
+stießen bald auf eine Kolonne des Feindes, welche die Unsrigen heftig angriff
+und zum größten Leidwesen des Generals Stuart und meiner, trotz all unserer
+Anstrengungen, in schmählicher Flucht über die Brücke zurückwarf. Hier wurden
+die Verfolger jedoch durch das Feuer unserer Artillerie und Scharfschützen
+aufgehalten, und nicht lange, so tobte der Kampf auf der ganzen Linie und wurde,
+namentlich in der Nähe der Brücke, mit besonderer Hartnäckigkeit bis spät in den
+Abend hinein geführt. Nach Eintritt der Dämmerung entschied General Stuart sich
+dafür, den Rückzug fortzusetzen. Die Brücke, welche für diesen Fall durch
+Anhäufung leicht brennbarer Stoffe zur Zerstörung vorbereitet war, wurde
+angezündet, und die brennenden Balken stürzten mit lautem Krachen in die Fluthen
+des Rappahannock, als unsere Kolonnen in der Richtung auf Jefferson abrückten.
+Dies Dörfchen, welches etwa acht Meilen vom Culpepper-Gerichtshaus entfernt
+liegt, erreichten wir bald nach Einbruch der Nacht. Da der Feind uns nicht
+weiter folgte, bezogen unsere Truppen hier Biwaks, nachdem die erforderlichen
+Vorposten ausgestellt waren.
+
+Die Nacht war ungewöhnlich kalt, und gegen 10 Uhr setzte ein Schneesturm mit
+solcher Heftigkeit ein, daß der General und sein Stab in einem verlassenen alten
+Blockhause Schutz suchten, wo wir Brennmaterial zusammentrugen und in dem
+baufälligen alten Kamine ein gewaltiges Feuer anzündeten. Wir fanden jedoch
+wenig Schlaf. Der Sturm raste die ganze Nacht hindurch und erschütterte die
+morschen Balken des alten Gebäudes in so bedenklicher Weise, daß wir jeden
+Augenblick darauf gefaßt waren, dasselbe über unseren Köpfen zusammenstürzen zu
+sehen, dazu jagte er ganze Schneewolken durch die scheibenlosen Fenster in die
+unfreundlichen Zimmer, die, wenn der Rauch in den Schlot zurückgedrängt wurde,
+sich derart mit Rauch füllten, daß man Gefahr lief, zu ersticken. Wir mußten
+daher das Feld räumen und wieder in das Unwetter hinaus. Bei Tagesanbruch ließ
+die Kälte ein wenig nach, nunmehr mischte sich jedoch ein feiner Regen mit dem
+Schnee, der uns bald bis auf die Haut durchnäßte und die Straßen äußerst
+schlüpfrig und unwegsam machte. Man kann sich denken, daß unsere Reiter unter
+diesen Umständen keinen eben sehr glänzenden Anblick gewährten, als sie ihre
+Linien formirten, um der Vorhut des Feindes entgegenzutreten. Mann und Pferd
+waren schmutzig und abgetrieben und hatten seit 24 Stunden so gut wie keine
+Nahrung erhalten.
+
+Die Yankees ließen uns nicht lange auf ihren Angriff warten; um 10 Uhr war das
+Gefecht in vollem Gange und machte uns warm genug. Unser Widerstand war nur von
+kurzer Dauer. General Stuart fürchtete das Steigen des Hazel-Flusses in unserem
+Rücken, und unsere Artilleriepferde waren kaum mehr im Stande, die Geschütze auf
+den aufgeweichten Wegen von der Stelle zu bringen. Unsere Bedrängniß nach dieser
+Richtung war so groß, daß wir uns bereits genöthigt gesehen hatten, zwei
+Geschütze zu vergraben, die wir nicht mehr mit fortzubringen vermochten. Am
+Nachmittag begannen wir unseren Rückzug von Neuem, dem Feinde jedesmal die
+Stirne bietend, sobald er uns zu lebhaft drängte. Spät am Abend erreichten wir
+den Fluß, den wir, freilich mit einigen Schwierigkeiten, jedoch ohne weiteren
+Unfall durchfurteten, und auf dessen entgegengesetztem Ufer wir, auf den Höhen
+bei dem kleinen Flecken Rixeyville, eine neue Stellung nahmen.
+
+Es war ein trauriger Anblick dieser Uebergang über den Hazel-Fluß. Unsere
+Heeresabtheilung, und namentlich die Brigade Fitz Lee, hatte schwer gelitten
+durch die unaufhörlichen Märsche und Gefechte, welche sie zu bestehen gehabt,
+unter dem rauhen winterlichen Wetter, dem Mangel an Nahrungsmitteln. Viele
+unserer Pferde waren geblieben, noch mehr waren niedergebrochen oder lahm und
+konnten nur nachgeführt werden. Die kranken und dienstunfähigen Leute machten
+eine Schaar von nahezu 500 Nichtstreitern aus, sie waren in eine Abtheilung
+vereinigt, welche scherzweise die „Kompagnie G“ genannt wurde und der Obhut des
+tapferen Quartiermeisters der Brigade Lee, Majors Mason, anvertraut war. Ich
+stand nicht geringe Sorge aus, bis ich den letzten Mann dieser großen Schaar
+hinkender Leute, die lahme Pferde am Zügel führten, auf der anderen Seite des
+Flusses sah. Oft konnte ich die Nachzügler nur dadurch zum Weitergehen bewegen,
+daß ich ihnen zurief: „Die Yankees sind dicht hinter Euch!“ wenn sie
+zurückblieben, um die Früchte der zahlreich an den Seiten der Straße stehenden
+Persimonpflaumenbäume zu pflücken — Früchte, welche der letzte Frost zu höchster
+Vorzüglichkeit entwickelt hatte, und die eine wenn auch magere, so doch sehr
+willkommene Speise für unsere hungrigen Soldaten darboten.^[^1202]^
+
+Da die Yankees nicht auf dem anderen Ufer des Hazel erschienen, ließen wir
+einige Schwadronen und zwei Geschütze zur Deckung der beiden nächsten Furten
+zurück, brachen mit der Hauptmasse unserer Truppen mit Einbruch der Nacht auf,
+gingen noch einige Meilen zurück und schlugen unsere Biwaks in einem dichten
+Eichen- und Fichtenforste auf. Die Nacht war wieder kalt, der Regen verwandelte
+sich in ein dichtes Schneegestöber und eröffnete uns die Aussicht auf eine
+höchst unbehagliche Zeit. Aber das übliche Holzfeuer mit seinem ungeheuren
+Haufen brennender Scheite, um das der General, sein Stab und seine Begleitung
+sich versammelten, gab hinreichende Wärme. Das Biwak selber war äußerst
+malerisch. Viele der Offiziere hatten sich in rothe Decken gehüllt, welche sie
+nach Art der Mexikaner trugen. Durch ein Loch in der Mitte steckt man den Kopf,
+und im Uebrigen fällt die Decke faltenreich von den Schultern herab. Andere
+trugen lange Ueberzieher und breitrandige Hüte tief in die Stirn gezogen.
+Zwischen diese Gruppen mischten sich die Neger, welche die Abendmahlzeit
+bereiteten. Rings umher der dunkle Wald, die Zweige der Bäume weiß vom Schnee
+und über Alles der leuchtend rothe Schein der Feuer ergossen, der die schärfsten
+Gegensätze von Licht und Schatten hervorrief. Die nimmer fehlende Vorsicht
+meines schwarzen Dieners William versorgte unser Mahl mit einigen vortrefflichen
+irischen Kartoffeln, die er irgendwo unterwegs aufgetrieben hatte, und die er in
+einer ganz vorzüglichen Weise zu rösten verstand.
+
+Einer unserer Kuriere, welchen wir nach der Post in Culpepper-Gerichtshaus
+gesendet hatten, kehrte nach dem Abendessen zurück und brachte mir die ersten
+Briefe aus der Heimath seit meiner Abreise nach Amerika. Ausgestreckt auf dem
+feuchten Grund, vertiefte ich mich bei dem flackernden Scheine des Feuers derart
+in die Lesung jener Briefe, daß ich nicht merkte, wie meine Decke Feuer fing,
+das schnell um sich griff, bis Stuart mir zurief: „Von, was machen Sie denn da?
+Wollen Sie sich verbrennen wie eine indische Wittwe?“
+
+Der 8., 9. und 10. November. — Früh am kommenden Tage verließen wir unsere Lager
+von Schmutz und Schnee und rückten wieder an den Hazel-Fluß vor, wo wir auf den
+hohen Hügeln, welche das Culpepper-Ufer nahe bei Rixeyville bilden, in
+Schlachtordnung die weitere Annäherung des Feindes erwarteten. Da Alles
+vollkommen ruhig blieb, gingen Stuart und ich über den Strom, um nach dem Feinde
+zu sehen, den wir in Biwaks bei Jefferson trafen, augenscheinlich ohne jede
+Absicht, weiter vorzudringen. Nachdem wir uns hierüber Gewißheit verschafft
+hatten, kehrten wir zu unseren Truppen zurück, deren größten Theil wir nach dem
+Lager der vergangenen Nacht abrücken ließen, nur wenige Schwadronen und einige
+Geschütze verblieben in der Nähe des Flusses, um einem überraschenden Angriffe
+auf die Furten entgegenzutreten. Unsere Pikets wurden auf der entgegengesetzten
+Seite des Flusses zwei Meilen weit vorgeschoben.
+
+Da mittlerweile die Wagen unseres Hauptquartiers herangekommen waren und es den
+Anschein gewann, als würde unser Aufenthalt in diesem Theile des Landes von
+längerer Dauer sein, schlugen wir unsere Zelte an dem Rande eines Eichenwaldes
+auf, und bald war unser Lager in regelrechter Weise abgesteckt. General Lee war
+mit dem größeren Theile seines Heeres ebenfalls eingetroffen und hatte ein Lager
+in der Nähe von Culpepper-Gerichtshaus bezogen. General Longstreet war mit
+seinem ganzen Armeekorps dort bereits seit einigen Tagen angelangt, gefolgt von
+Jackson, der nur eine seiner Divisionen unter D. H. Hill bei Front Royal
+zurückgelassen hatte.
+
+General Stuart benutzte den nächsten Tag zu einer kleinen Erkundung nach der
+Brandy-Station und der Rappahannock-Brücke, zu der ich ihn diesmal ausnahmsweise
+nicht begleitete, da ich im Lager häusliche Pflichten zu erfüllen hatte, die
+Einrichtung der Zelte, die Erbauung des üblichen Feuerherdes und Kamins. Zur
+Herbeischaffung der Baumittel bedienten wir uns des wohlbekannten gelben Wagens,
+den wir den Yankees abgenommen hatten und vor den Pelham und ich jeder eines
+unserer Pferde legten. Als wir das erste Mal das Gespann vorlegten, hatte ich
+Gelegenheit, die Brutalität von Pelhams Neger Willis mit Entrüstung zu bemerken
+und mit allem Nachdrucke zu bestrafen. Gerade in dem Augenblicke, als mein Pferd
+die äußersten Anstrengungen machte, um den schwer beladenen Wagen aus einer
+Pfütze zu ziehen, schlug der Bursche dasselbe in einem Wuthanfalle mit einem
+Beile derart über den Kopf, daß das Thier wie todt hinfiel und mehrere Minuten
+lang liegen blieb. Glücklicherweise war ich nahe genug, um dieser Grausamkeit
+sogleich mit der Reitpeitsche den entsprechenden Lohn zu ertheilen.
+
+General Stuart kehrte gegen Abend zurück, zeitig genug, um an unserem
+bescheidenen Mahle, bestehend aus Kaffee und gerösteten Kartoffeln,
+theilzunehmen. Er erzählte uns, daß er auf seinem Rückwege in dem Hauptquartiere
+des Generals Lee angesprochen sei und den Befehl erhalten habe, am nächsten Tage
+eine scharfe Erkundung auszuführen. Er wollte die Brigade Fitz Lee, eine
+Batterie und zwei Regimenter Infanterie mit sich nehmen, welche letztere ihm für
+diesen besonderen Fall zur Verfügung gestellt waren. Am nächsten Morgen wurden
+wir mit Tagesanbruch geweckt durch den Trommelschlag unserer Verstärkungen, und
+um acht Uhr überschritten wir den Hazel-Fluß, ein Reiter-Regiment rechts auf
+Jefferson entsendend und mit der Hauptmasse der Kolonne uns links in der
+Richtung auf den kleinen Flecken Amißville wendend. Gegen 10 Uhr stieß unsere
+Vorhut auf den Feind, mit dem wir bald in ein heißes Gefecht verwickelt waren,
+in welchem die Yankees langsam vor uns zurückwichen. Ich konnte nicht umhin, bei
+dieser Gelegenheit die vortreffliche Haltung einer Schwadron der 5. New-Yorker
+Reiter zu bewundern, welche mit der höchsten Kaltblütigkeit das heftige Feuer
+unserer Batterie aushielt, die vortrefflichste Ordnung bewahrte, obgleich
+Granate auf Granate in ihre Glieder einschlug und Sattel nach Sattel räumte —
+ruhig die Lücken in ihren Reihen schließend, räumte sie endlich das Feld erst,
+als wir sie mit mehreren Schwadronen angriffen.
+
+Anfänglich waren die Föderirten ohne Artillerie, doch bald erschienen
+verschiedene Batterien zu ihrer Unterstützung und eröffneten ein heftiges Feuer
+auf unsere Geschütze, welche viele Leute und Pferde verloren. Ich hielt in der
+Nähe zweier dieser Geschütze und unterhielt mich mit dem Lieutenant M'Gregor,
+der dieselben befehligte, als eine Granate 30 Fuß von uns platzte, ihre
+Sprengstücke nach allen Richtungen umherschleudernd; einige derselben gingen
+gerade zwischen uns durch und eines davon zerschmetterte dem braven jungen
+Burschen das Bein, so daß es an einer Seite nur noch baumelte. Er bestand
+trotzdem darauf, bei den Geschützen zu bleiben, und es bedurfte der vereinten
+Ueberredung von General Stuart und mir, um ihn dazu zu bewegen, daß er sich vom
+Kampfplatze entfernte und den Händen eines Arztes anvertraute.
+
+Nunmehr griff auch unsere Infanterie in das Gefecht ein, und wir drängten den
+Feind bis in die Nähe von Amißville zurück; ich erhielt von meinem Chef Befehl,
+die dortige Stellung zu erkunden, bevor er seine bisherigen Erfolge weiter
+auszubeuten versuchte. Einen hohen Hügel, etwa eine Meile zu unserer Rechten,
+erklimmend, gewann ich einen herrlichen Blick auf die umliegende Gegend, der
+sich Meilen und Meilen weit bis zur Stadt Warrenton erstreckte, wo zahlreiche
+Lagerplätze die Anwesenheit des gesammten föderirten Heeres anzeigten. In der
+nächsten Front nach Amißville hin konnte ich sehen, wie die uns
+gegenüberstehenden Abtheilungen durch drei Brigaden Infanterie und mehrere
+Batterien verstärkt wurden, die im Geschwindschritte auf der Chaussee
+heranzogen. In fliegender Eile galoppirte ich zu Stuart zurück, um ihn von der
+Gefahr seiner Stellung Kunde zu geben, doch noch bevor ich ihn zu erreichen
+vermochte, sah ich unsere Truppen zurückgehen; mein Chef hatte selber die
+Verstärkung unserer Gegner beobachtet.
+
+Die feindlichen Schützen gingen nun schnell in vortrefflicher Ordnung vor und
+belästigten durch die Lebhaftigkeit und Genauigkeit ihres Feuers unseren Rückzug
+in hohem Grade, den zwei Geschütze und die Scharfschützen der Reiterei deckten.
+Stuart, bemerkend, daß unsere Reitersleute rasch zurückgetrieben wurden, und
+äußerst verdrießlich über die Erfolge des Feindes, rief 25 oder 30 von den
+Büchsenschützen unserer Infanterie zu sich und stellte dieselben in eine
+Waldecke, mit dem Befehle, nicht zu feuern, bis der Feind auf 200 Yards an sie
+herangekommen sei, um so die Unverschämtheit der Yankees, wie er es nannte,
+nachdrücklich zu bestrafen. Stuart selbst setzte auch hier, wie gewöhnlich,
+seine Person auf das unvorsichtigste aus, indem er aus dem Walde heraus auf das
+offene Feld ritt. Ich hielt es für meine Pflicht, ihm zu sagen, daß meiner
+Ansicht nach das nicht der geeignete Platz für ihn sei, da in wenig Augenblicken
+das ganze Feuer des Feindes auf ihn gerichtet werden würde; da aber J. E. B. in
+sehr übler Laune war, antwortete er mir, wenn es mir schiene, daß dieser Platz
+für mich zu heiß sei, stände es mir ja frei, denselben zu verlassen; worauf ich
+ihm erwiderte, meine Pflicht wäre es, an seiner Seite zu bleiben, und so dürfte
+mir kein Platz zu heiß sein, den zu wählen ihm beliebte. Nichtsdestoweniger
+änderte ich meinen Platz insoweit, als ich einen großen Baum, vor dem ich bisher
+gehalten hatte, zwischen mich und den Feind brachte. Im nächsten Augenblicke
+begann das Feuer, und drei Kugeln schlugen in solcher Höhe in den Baum, daß sie
+mich hätten treffen müssen, wenn ich auf meinem Platz geblieben wäre. Als ich zu
+Stuart hinüberblickte, sah ich, wie er mit der Hand schnell über das Gesicht
+fuhr; und selbst in diesem ernsten Augenblicke konnte ich ein Lachen nicht
+unterdrücken, als ich bemerkte, daß eine der ihn umpfeifenden Kugeln die Hälfte
+seines geliebten Schnurrbartes so sauber weggenommen hatte, wie dies nur die
+Hand des geschicktesten Barbiers hätte ausführen können.
+
+Die Yankees setzten ihre Verfolgung nur eine kurze Strecke weit fort, und wir
+zogen ruhig dem Hazel-Flusse zu. Im Ganzen war unsere Erkundung äußerst
+erfolgreich gewesen. Wir hatten Alles erfahren, was wir zu wissen wünschten, und
+ohne besondere Verluste, während wir dem Feinde deren recht schwere zugefügt und
+ihm 30 Gefangene abgenommen hatten. Da ich von General Stuart Befehl erhielt,
+dem General Lee sofort über das, was geschehen und gesehen, Bericht zu
+erstatten, galoppirte ich eiligst in die Dämmerung hinein. Auf meinem Wege ritt
+ich durch unser Hauptquartier, wo Alle, welche hatten zurückbleiben müssen,
+herbeieilten, um Nachrichten über das Gefecht zu erhalten; ich gab dieselben in
+der bündigsten Form durch ein: „Alles in Ordnung“, und eilte weiter, ohne mich
+aufzuhalten. Mit einiger Mühe fand ich das Lager des Generals Lee auf der
+anderen Seite des Fleckens, wo seine bescheidenen Zelte in einem dichten
+Fichtenholze aufgeschlagen waren. Das Abendbrot wurde eben gemeldet, als ich
+ankam, und da ich die freundliche Aufforderung des Generals, mit ihm zu speisen,
+annahm, hatte ich eine zahlreiche, begierig lauschende Zuhörerschaft, als ich
+unsere jüngsten Erlebnisse erzählte. Der Oberbefehlshaber und die Glieder seines
+Stabes ergötzten sich höchlichst über den Verlust des halben Schnurrbarts, den
+Stuart erlitten, eine körperliche Zierde, auf die er, wie sie wußten, sehr stolz
+war. Erst spät in der Nacht kehrte ich zu unserem Hauptquartiere zurück, wo
+Stuart und die Kameraden seines Stabes bereits vor längerer Zeit eingetroffen
+waren.^[^1203]^
 
 
 
+[^1201]: [Ein sehr beherzigenswerthes Beispiel dafür, wie die Reiterei das Gefecht zu Fuß und zu Pferde mit Erfolg kombiniren muß. Vergl. die §§ 236 und 237 des Exerzir-Reglements für die Kavallerie vom 5. Juli 1876. *Anm. d. Uebers.*]{.footnote}
 
+[^1202]: [Der Persimonpflaumenbaum wächst in Virginia in großer Menge, und seine Frucht erinnert an die europäische Mispel oder die asiatische Dattel. In unreifem Zustande ist die Persimone sauer und herbe, wird jedoch durch jeden Frost milder und schmeckt im Winter süß und angenehm. Man braut sehr gutes Bier daraus und ihre Kerne wurden von uns öfters zur Bereitung eines jämmerlichen Ersatzes für den Kaffee benutzt. Die Nordcarolina-Truppen wurden vielfach von ihren Kameraden aus dem anderen Staaten wegen ihrer Vorliebe für diese Frucht gehänselt, eines Geschmackes, den sie mit den Negern und einem der merkwürdigsten Thiere, dem virginischen Opossum, theilen, das stets am feistesten ist, wenn die Zeit der Persimone ihren Höhepunkt erreicht hat.]{.footnote}
 
-
-
-
-
-
+[^1203]: [Um ein klares Verständniß dafür zu gewinnen, welche großen Dienste die Reiterabtheilungen unter Stuarts Führung dem konföderirten Heere unter den hier geschilderten Verhältnissen geleistet haben, um daraus einen allgemeinen Schluß ziehen zu können bezüglich des Werthes, den größere, selbständige, mit ausreichender Artillerie versehene, gut geführte Reiterabtheilungen für die größeren Unternehmungen im Kriege haben, dürfte ein kurzer Rückblick auf die Gesammtheit der Ereignisse an der Stelle sein, von denen wir hier nur die besondere Thätigkeit der Reiterei näher kennen zu lernen Gelegenheit hatten.<br /> Durch das Vorgehen des von Neuem verstärkten föderirten Heeres über den unteren Potomac wurde das Thal von Virginia und Richmond bedroht. General Lee, dessen Hauptaufgabe es war, diese Hauptstadt zu decken, sah sich daher genöthigt, sich dieser Bewegung des Gegners vorzulegen, da die früher versuchte Offensive nach Maryland hinein nicht den erhofften Erfolg gehabt hatte. Er mußte zu diesem Zwecke aus den Gegenden von Martinsburg und Harpers Ferry, südlich welcher Orte sein Heer bis dahin gestanden hatte, einen Parallelmarsch mit dem des Feindes in südlicher Richtung ausführen, welcher östlich der Kittoktan- und Bull-Run-Berge einherzog. Lees Marsch war der bei Weitem längere. Erreichte der Feind die Gegend von Culpepper vor ihm, so stand derselbe zwischen ihm und Richmond, er mußte ihn schlagen oder in weitem Umwege umgehen, derselbe konnte bei seiner großen Ueberlegenheit ihm eine ausreichende Abtheilung seines Heeres entgegenwerfen, ihn auf seinem Marsch aufhalten, ihn zur Schlacht nöthigen und unterdessen mit dem Reste auf Richmond marschiren. Allen diesen übeln Möglichkeiten mußte vorgebeugt werden, indem man den Gegner über die eigenen Bewegungen täuschte, seinen Marsch aufhielt, dadurch Zeit gewann, Culpepper vor ihm zu erreichen und so den nur mit großen Schwierigkeiten zu überschreitenden Rappahannock zwischen sich und den Gegner zu bringen. Die Lösung dieser schwierigen Aufgaben fiel Stuart und seiner Reiterei zu. Wie er diese Aufgabe löste, in der Zeit vom 30. Oktober, an welchem Tage er den Shenandoah und die „Blaue Bergkette“ bei Snickers Gap überschritt, bis zum 10. November, an dem er durch seine scharfe Rekognoszirung feststellte, daß das ganze föderirte Heer bei Warrenton lagerte, somit also noch nicht das Südufer des Rappahannock erreicht hatte: das haben wir in den äußerst lebensvollen und drastischen Schilderungen der „Erinnerungen“ gelesen. Während er in diesen zwölf Tagen dem Gegner zunächst kühn auf den Leib ging, ihn in seinen eigenen Stellungen bei Leesburg aufsuchend, ihn dann in täglichen hartnäckigen Gefechten zu fesseln und aufzuhalten wußte, zog das Heer ungestört und ohne durch Gefechte oder sonstige Unternehmungen zu seiner Sicherheit angestrengt oder aufgehalten zu werden, westlich des Shenandoah dahin und erreichte ungeschwächt und kampfesfrisch den wichtigen Punkt Culpepper. Ist diese Verwendung der Reiterei sowie ihre Führung während dieser Verwendung mustergültig, so dürfte sie andererseits doch auch wohl darthun, daß es sich der Mühe verlohnt, einer solchen Verwendung und Thätigkeit der Waffe eine recht eingehende Aufmerksamkeit zu schenken, sie durch zweckmäßige Organisation und Vorübung im Frieden für solche Verwendung und Thätigkeit geschickt zu machen, vorzubereiten, wenn es auch viel Geld kostet. Das hier angelegte Kapital dürfte dereinst reichliche Zinsen tragen, unzeitige Sparsamkeit dagegen leicht sehr theuer zu stehen kommen. — Das Wesentliche dazu aber, daß eine solche Verwendung und Thätigkeit der Reiterei möglich und für das Ganze des Heeres nutzbringend wird, muß diese selber thun, indem sie sich über ihre eigentlichen kriegerischen Aufgaben klar wird, durch fleißige, auf den eigentlichen Zweck gerichtete Arbeit — Jeder an seiner Stelle, mag deren Wirkungskreis noch so klein sein — zu einem brauchbaren Werkzeuge heranbildet, das, in die Hand des rechten Mannes gelegt, dann seine Schuldigkeit thut, auch ohne jene so sehr erwünschte Vorübung im Großen, trotz der unfehlbar größeren Opfer und ersten Mißlingens, die unter diesen Umständen schwerer zu vermeiden sein werden. *Anm. d. Uebers.* ]{.footnote}
 
 ::::
