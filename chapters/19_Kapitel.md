@@ -250,7 +250,7 @@ ihm reichliche Entschädigung für die angewendete Kriegslist zahlten, fuhr er
 fort, sich mit dem Gefühle seiner Wichtigkeit zu trösten, daß er von so
 vornehmen Gästen aufgesucht sei.
 
-Wir erreichten Hamptons Hauptquartier nahe bei CulpepperGerichtshaus vor Mittag.
+Wir erreichten Hamptons Hauptquartier nahe bei Culpepper-Gerichtshaus vor Mittag.
 wo wir Stuart bereits trafen. Am Abend folgten wir Alle einer Einladung in das
 Dorf, wo Fitz Lees Leute eine Neger-Minstrel-Unterhaltung eingeleitet hatten,
 die unter Sweeneys und Bobs Unterstützung mit jeder dergleichen in London hätte
@@ -279,10 +279,176 @@ Gesellschaft ganz besonderes Gefallen fand. Das Kriegsglück spielte diesem
 glücklichen Trio hart mit. Der arme Pelham starb nicht lange danach in demselben
 Hause, in dem wir so angenehme Stunden verlebt hatten, einige Monate später fiel
 Eales, am Tage zuvor, an welchem ich eine schwere Verwundung erhielt, die lange
-Zeit für tödlich gehalten wurde. Obschon wir Stuart in wenigen Tagen
-zurückerwarteten, 
+Zeit für tödlich gehalten wurde. 
 
-S. 125 
+Obschon wir Stuart in wenigen Tagen zurückerwarteten, vergingen 14 Tage, bis wir
+von ihm etwas hörten, und zwar durch ein Telegramm, das uns den Befehl zur
+Rückkehr nach dem Hauptquartiere bei Fredericksburg brachte. Wir waren sehr
+betrübt, das angenehme Culpepper verlassen zu müssen, und die Entbehrungen wie
+die Eintönigkeit des Lagerlebens fielen uns um so schwerer nach einer Zeit
+verhältnißmäßigen Ueberflusses und Behagens. Der noch übrige Rest des Februar
+und ein Theil des März schlichen langsam dahin, so eintönig und langweilig, daß
+es kaum auszuhalten war und wir dem Frühlingsanfange, mit ihm der Wiederaufnahme
+des Feldzuges, mit heißer Sehnsucht entgegensahen. Am 15. März brach Stuart nach
+Culpepper auf, wo er bei einem Kriegsgerichte als Zeuge zu erscheinen hatte, und
+Pelham, der großes Verlangen trug, unsere Freundinnen wiederzusehen, begleitete
+ihn, ein Vergnügen, das ich nicht theilen durfte, da der General mir die
+Aufsicht über die Posten an den verschiedenen Furten des Rappahannock von
+Fredericksburg bis zur Mündung des Rapidan anvertraut hatte. Am Morgen des 17.,
+einem jener milden nebligen Märztage, die das Nahen des Frühlings verkünden,
+wurden wir plötzlich aus unserer trägen Ruhe und dem einförmigen Leben
+aufgestört durch Kanonendonner, der aus der Richtung der Vereinigten
+Staaten-Furt, an zehn Meilen oberhalb Fredericksburg am Rappahannock, zu kommen
+schien. Ich war im Augenblick im Sattel, in der Voraussetzung, der Feind
+versuche den Uebergang an einer der Stellen zu erzwingen, welche meiner Obhut
+anvertraut waren. Aber als ich in größter Eile den Strom erreichte, überzeugte
+ich mich, daß der Kanonendonner von weiter her herüberschallte und, wie mir
+schien, von der Mündung des Rapidan herkam. Diese Vermuthung erwies sich als
+richtig, denn als ich meine Feldwachen erreichte, erhielt ich die Meldung, ein
+schweres Gefecht sei in der Richtung auf Culpepper-Gerichtshaus im Gange, nahe
+Kelleys Furt, in gerader Linie wohl fünfzehn Meilen den Fluß aufwärts. Die
+Kanonade, die während des Morgens immer lauter und stärker zu werden schien,
+nahm allmählich mit dem vorschreitenden Tage ab und schwieg am Abende, als ich
+zum Lager zurückkehrte, gänzlich.
 
+Die Gegend um den Rappahannock ist von dichten Forsten bedeckt, woher sie mit
+Recht den Namen Wildniß erhalten hat, die an zahlreichen Stellen Scenen wilder
+und romantischer Schönheit aufweisen. Diese Forsten sind nicht von regelmäßigen
+Wegen durchschnitten, wohl aber führt eine Anzahl schmaler Reitwege durch das
+verwachsene Unterholz von Lorbeer-, Kirschen- und Brombeergesträuch, das mit
+Reben- und Rankengewächsen, die von den größeren Bäumen herabhängen, sich
+verschlingend ein Dickicht bildet, durch welches kein menschliches Wesen sich
+Bahn zu brechen vermag. Es war ein schöner friedlicher Abend, dessen Stille nur
+durch den Gesang der Drossel oder das eintönige Picken des Spechtes unterbrochen
+wurde, einer jener Abende, die für eine schwermüthige und gefühlvolle Stimmung
+wie geschaffen sind — und seltsam, eine solche Stimmung bemächtigte sich meiner
+unwiderstehlich, meine Gedanken kehrten immer wieder zu Pelham, meinem lieben
+Freunde, zurück, mit einem hartnäckigen Vorgefühle, es müsse ihn ein
+schreckliches Schicksal ereilt haben.
+
+Ein geringfügiges Ereigniß, das in der Nähe des Hauptquartiers vorkam,
+belustigte mich zufällig und reichte hin, meine Gedanken von der trüben
+Richtung, welche sie angenommen hatten, wieder abzulenken. Auf meinem Wege nach
+dem Strome hatte ich einen handfesten Farmer nach einem näheren Wege gefragt;
+nun bei meiner Rückkehr traf ich ihn wieder. Da ich jedoch seit unserer ersten
+Begegnung meinen Mantel abgelegt und an den Sattel geschnallt hatte, erkannte er
+mich nicht wieder und redete mich folgendergestalt an: „Sind Sie nicht einem
+Menschen in einem dicken Ueberrocke begegnet, der ein Pferd ritt, das dem
+Ihrigen etwas ähnlich sah? Er that mehrere Fragen und sprach fast so wie ein
+Deutscher; meiner Ansicht nach war es ein verdammter Yankee-Spion.“ Worauf ich
+ihn darüber aufklärte, daß ich selber die fragliche Person sei, doch gelang es
+mir nicht, ihn zu überzeugen, denn er schwor, ich hätte gar keinen deutschen
+Accent und sagte mir viele Artigkeiten über meine vortreffliche Aussprache des
+Englischen. Ich ließ ihn bei seinem Glauben und setzte meinen Weg nach dem Lager
+fort, das ich bald nach Eintritt der Dunkelheit erreichte.
+
+Am nächsten Morgen wurde ich eine Stunde vor Tagesanbruch dadurch geweckt, daß
+Jemand auf mein Zelt zugeritten kam, die Stimme eines der Kuriere, welche Stuart
+mit sich genommen hatte, scheuchte mich aus dem Bette. Er berichtete mit sehr
+erregter Stimme, wie der General mit der Brigade Fitz Lee in ein sehr blutiges
+Gefecht mit einer weit überlegenen Abtheilung des Feindes verwickelt worden sei,
+denselben jedoch geschlagen habe, freilich auf Kosten manches Lebens, darunter
+auch Pelhams, des tapferen Führers unserer reitenden Artillerie. Armer Pelham!
+Erst kürzlich hatte er die Beförderung zum Range eines Oberstlieutenants
+erhalten und fand nun seinen Tod in einem verhältnißmäßig kleinen Gefechte,
+nachdem er unverletzt aus so mancher großen Schlacht wiedergekehrt war. Auf
+einem Vergnügungsausfluge war er unvorbereitet von dannen genommen, bei dem
+ersten Kanonenschusse eilte er unbewaffnet auf einem von Sweeney entlehnten
+Pferde nach dem Gefechtsfelde. Seine Batterien waren noch nicht zur Stelle, um
+denen des Feindes zu antworten, aber sein Eifer gestattete ihm nicht, ihre
+Ankunft abzuwarten, er flog in das dichteste Kampfgewühl, unsere Leute durch
+Zuruf und Beispiel anfeuernd. Als eines unserer Regimenter beim Vorgehen zur
+Attacke von einem so furchtbaren Feuer des Feindes begrüßt wurde, daß es zu
+wanken begann, sprengte Pelham vor seine Front und rief: „Vorwärts Jungens!
+Vorwärts zu Sieg und Ruhm!“ und in demselben Augenblicke traf ihn der Splitter
+einer Granate, die über seinem Haupte sprang, drang in den hinteren Theil des
+Schädels und warf den jugendlichen Helden bewußtlos aus dem Sattel. Man trug ihn
+nach Culpepper, wo die jungen Damen aus Herrn S.s Familie mit schwesterlicher
+Sorgfalt seiner pflegten, aber er kam nicht wieder zum Bewußtsein, und seine
+edle Seele schied noch an demselben Abende aus diesem Leben!
+
+Diese Trauerbotschaft verbreitete sich in wenig Augenblicken durch das ganze
+Lager; die allgemeine und tiefe Trauer, welche sie hervorrief, entzieht sich
+jeder Beschreibung, denn Alle hatten Pelham geliebt und bewundert, jeder
+Einzelne war stolz gewesen auf seine Tapferkeit. Einer nach dem anderen kamen
+die Kameraden in mein Zelt, um sich die Bestätigung der kläglichen Kunde zu
+holen, die Jedermann nicht glauben wollte, glauben konnte, bis er es selber
+vernommen. Kuriere, Neger und viele andere Leute versammelten sich draußen, Alle
+schienen wie betäubt von dem plötzlichen grausamen Schlage, der sie Alle mit
+getroffen hatte, und als der Morgen anbrach, herrschte statt der gemüthlichen
+geräuschvollen Thätigkeit und des heiteren Frohsinns eine tiefe schwermüthige
+Stille in dem ganzen Lager. Rührend war das Benehmen der beiden Negerdiener
+Pelhams, Willis und Newton, welche mit dem Ausdrucke tiefster Trauer um die
+Erlaubniß baten, sofort aufbrechen zu dürfen, um zu der Leiche ihres Herrn zu
+eilen und dort die Todtenwache zu thun, eine Erlaubniß, die ich leider nicht
+ertheilen durfte.
+
+Am frühen Morgen erhielt ich ein Telegramm von Stuart mit dem Befehle, mit dem
+nächsten Zuge nach Hannover Junction zu fahren, um dort die Leiche Pelhams in
+Empfang zu nehmen, dieselbe nach Richmond zu geleiten und die nöthigen
+Anordnungen zu treffen, daß sie nach Alabama, seinem Heimathstaate, übergeführt
+werde. Ich brach sofort auf und erreichte den Knotenpunkt rechtzeitig, um die
+Leiche in Empfang nehmen zu können, die mit mehreren anderen in einen einfachen
+Kasten gelegt war. Ein Artillerist geleitete sie, der mir mit Thränen in den
+Augen die Einzelheiten über den Tod seines tapferen Führers mittheilte. Erst
+spät am Abend erreichte ich Richmond und da ich den telegraphisch bestellten
+Leichenwagen nicht vorfand, sah ich mich genöthigt, die Leiche in einem
+gewöhnlichen Einspänner nach der Stadt zu befördern. Gleich nach meiner Ankunft
+suchte ich den Gouverneur Letcher auf, einen alten zuverlässigen Freund von
+Stuart und mir, der freundlich jede in seiner Macht stehende Unterstützung anbot
+und ein Zimmer im Kapitol zur Verfügung stellte, in dem der Kongreß der
+Konföderirten seine Versammlungen hielt. Dort fand der Sarg seine Aufstellung,
+bedeckt mit einer großen Fahne des Staates Virginia, bewacht von einer
+Ehrenwache. Am folgenden Tage besorgte ich einen schönen eisernen Sarg und half
+mit eigener Hand die theure Leiche in ihr letztes Ruhebette legen. Der Schmerz
+übermannte mich, als ich die kalte Hand berührte, deren warmen Freundesdruck ich
+so oft in Kampf und Noth, in heiterer Fröhlichkeit und Lust gefühlt. Seine
+männlichen Züge trugen auch im Tode noch den Ausdruck von Festigkeit und Stolz,
+welcher sie im Leben auszeichnete. Auf mein ausdrückliches Verlangen war ein
+kleines Glasfenster gerade über dem Gesichte in den Sargdeckel eingelassen, so
+daß seine Freunde und Bewunderer noch einen Abschiedsblick auf die Züge des
+jugendlichen Helden richten konnten. Und sie kamen in großer Zahl. Meistentheils
+waren es Damen, die Kränze und prachtvolle Sträuße auf seinen Sarg niederlegten.
+Unterdessen hatte ich mit mehreren Mitgliedern des Kongresses von Alabama
+verhandelt, Freunden von Pelhams Vater, und es wurde beschlossen, daß seine
+Ueberreste unter der Obhut eines jungen Soldaten, welcher Beziehungen zu der
+Familie hatte und eben aus einem Lazareth in Richmond entlassen war, nach der
+Heimath übergeführt werden sollten. Der Nachmittag des folgenden Tages war für
+die Abfahrt festgesetzt worden, und um 5 Uhr brachten wir den Sarg nach dem
+Bahnhofe. Das Infanterie-Bataillon Richmond erwies ihm die letzten militärischen
+Ehren, und eine große Anzahl der Würdenträger der konföderirten Staaten, Freunde
+und Kameraden, folgten. Alabama erwies seinem tapferen Sohne alle Achtung und
+feierliche Ehrenbezeigung, die er so wohl verdient hatte. Von den Grenzen des
+Staates an begleitete eine Ehrenwache den Sarg, und auf jeder Bahnstation
+erwarteten ihn Damen, die ihn mit Blumen bekränzten.
+
+General Stuart traf tags darauf, noch tief erschüttert von dem Verluste seines
+jugendlichen Freundes, in Richmond ein und bedauerte es sehr, daß er nicht habe
+den Trauerfeierlichkeiten beiwohnen können. Da ich Urlaub auf einige Tage
+erhalten hatte, sah ich viele meiner alten Freunde wieder, so auch Lawley, durch
+dessen Vermittelung ich die Bekanntschaft des Prinzen Polignac machte, der als
+Brigadegeneral der Infanterie in dem Westheere diente. Bei meiner Rückkehr ins
+Hauptquartier erreichte uns eine andere Trauerbotschaft, von dem Tode des
+Hauptmanns Redmond Burke, der unserem Stabe angehörte. Während er sich mit
+zweien seiner Söhne auf einer Patrouille am oberen Potomac befand, um Kundschaft
+einzuziehen, beging er die Unvorsichtigkeit, die Nacht in einem Hause in
+Shepherdstown, nahe der Stellung des Feindes, zu bleiben. Die Yankees, durch
+Verräther von seiner Anwesenheit unterrichtet, schickten eine Reiterabtheilung
+aus, welche das Haus umzingelte und die Insassen zur Uebergabe aufforderte. Die
+tapferen Drei versuchten jedoch den Kreis zu durchbrechen. Bei diesem
+Unternehmen wurde Burke selber getödtet, einer der Söhne verwundet, der andere
+gefangen genommen. Kurze Zeit darauf kam die Nachricht von dem Tode des
+Lieutenants Turner, eines vielversprechenden jungen Offiziers unseres Stabes,
+der mit Instruktionen zu dem wohlbekannten Guerillaführer Mosby gesendet war und
+bei einem Scharmützel, welches am Tage nach seinem Eintreffen stattfand, eine
+schwere Verwundung davongetragen hatte. Er war auf einer Pflanzung innerhalb der
+feindlichen Linien zurückgeblieben und befand sich auf dem besten Wege zur
+Genesung, als eine kleine Abtheilung Föderirter in das Haus drang, ihn aus dem
+Bette riß und so mißhandelte, daß seine Wunden wieder aufbrachen und er bald
+darauf starb. Alle diese Unglücksfälle verfehlten nicht, einen düsteren Schatten
+über unsere kleine militärische Familie zu breiten, es war eine Erlösung, als
+wir am 9. April Marschbefehl nach Culpepper-Gerichtshaus erhielten, und der Ton
+der Trompete, der in den Sattel rief, den neuen Feldzug mit all seiner wilden
+Aufregung ankündigend, erhob noch einmal unsere Geister zu hohem Fluge.
 
 :::
