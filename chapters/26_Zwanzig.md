@@ -2246,7 +2246,7 @@ A Copy from the Minutes
 
 ::::: align-right
 Teste Arthur A. Spitzer,<br />
-Captain and Adjutant.
+Captain and Adjutant.<br /><br />
 :::::
 ::::
 
