@@ -2,7 +2,7 @@
 
 <img align="right" width="200" src="https://github.com/kogo59/Zwei_Jahre_im_Sattel_Band_II/blob/main/images/cover.jpg">
 
-This is a git repository of the source files for the book "Zwei Jahre im Sattel und am Feinde. Erster Band." 
+This is a git repository of the source files for the book "Zwei Jahre im Sattel und am Feinde. Zweiter Band." 
 
 Authors:
 
